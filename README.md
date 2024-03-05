@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **https://t.me/bobkovS**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: **https://t.me/bobkovS** </h3>
 <p align="left">
 </p>
 
